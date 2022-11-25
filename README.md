@@ -1,1 +1,1 @@
-# Z
+A lavalier microphone, sometimes known as a 'lav mic,' is <a href="https://svantto.com/products/wireless-lavalier-microphone-iwm01">lapel microphone</a> a compact and unobtrusive audio device that produces high-quality sound for a variety of applications.
